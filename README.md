@@ -12,6 +12,10 @@ Integrantes:
 
 <br>
 
+📺🔗 Vídeo explicativo: https://youtu.be/8gxoQRHYS10
+
+<br>
+
 ## 💡 Problema e Solução Proposta
 
 ### O Problema
